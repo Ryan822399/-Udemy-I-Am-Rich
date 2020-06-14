@@ -1,1 +1,1 @@
-(Udemy) I Am Rich
+I am Rich IOS 
